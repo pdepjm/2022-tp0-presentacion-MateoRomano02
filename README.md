@@ -13,7 +13,7 @@
 **Me gusta mucho hacer deporte de cualquier tipo, aunque el que hago actualmente e intensivamente es fútbol, además me gusta cocinar. Mis sabores favoritos de helado son Tramontana, crema americana y marroc.**
 **No se que mas poner jajaja, espero tener una buena cursada en la materia.**
 
-
+![foto](images.jfif)
 
 
 Seguí los pasos del doc [acá](https://docs.google.com/document/d/e/2PACX-1vQkogtG88cmwEIXEuff291urSyrZUYHikLIoRTspUodvIg5OoaUJTi8n0vqPJ3XUSN65sqJALTBizeB/pub).
