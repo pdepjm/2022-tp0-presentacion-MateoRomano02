@@ -1,6 +1,6 @@
 # Presentación
 
-## Estudiante: Mateo Agustin Romano
+## Estudiante: Mateo Agustín Romano
 
 ![mi foto](fotoPerfil.jpeg)
 
